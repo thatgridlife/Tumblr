@@ -11,4 +11,4 @@ Hours Spent: 8 hrs
 #####Notes
 Want to go back and work on animations.
 
-[Video Walkthrough] (http://www.gfycat.com/ZestySpryFish)
+[Video Walkthrough] (http://postimg.org/image/z0ddhfr6f/)
